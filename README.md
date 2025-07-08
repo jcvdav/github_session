@@ -9,3 +9,4 @@ We all met on July 8, 2025 to work on GitHub.
 
 Will we have a second session?
 
+Not sure, we'll have to see.
